@@ -19,5 +19,5 @@ I can see a future for me particularly interested in research, since I have a st
 
 ![London Connection |University of London](https://london.ac.uk/sites/default/files/styles/max_1300x1300/public/2018-10/london-aerial-cityscape-river-thames_1.jpg?itok=6LenFxuz)
 
-# Music! ⭐
+# ⭐
 
